@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ogsahilnayak
 - 👀 I’m interested in Software Developement and Mathematics. 
 - 🌱 I’m currently learning alot of things
-- 💞️ I’m looking to collaborate alot of thing (THATs WHY DM me)
+- 💞️ I’m looking to collaborate on alot of thing (THATs WHY DM me)
 - 📫 How to reach me contactsahilnayak@gmail.com
 
 <!---
